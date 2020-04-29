@@ -7,3 +7,6 @@ Personal portfolio
 mobile pic to be fixed 
 
 project content to be updated
+
+Resume link to be updated
+
